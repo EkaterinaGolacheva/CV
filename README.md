@@ -1,1 +1,1 @@
-# EkaterinaGolacheva-cv.github.io
+# EkaterinaGolacheva.github.io/CV
